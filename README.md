@@ -1,0 +1,1 @@
+# Galih-Triadi-Menentukan-hasil-bilangan-genap-dan-ganjil
